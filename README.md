@@ -1,1 +1,0 @@
-# beauty-parlor-assets
